@@ -8,7 +8,7 @@
 
 semi-exp roleplayer (i've lost rp skills), basic dni, minecraft builder and pvper, i usually reach out first, unless i lack confidence  ;D
 
-i have a different sense of humor, so i might not get your jokes ;-;
+i have a different sense of humor, so i might not get your jokes :((
 
 i’ve lost interest in GTC, Mafia, FSR, FTS, and anything with a VS format. If I join those now, I’m just going to spectate
 
